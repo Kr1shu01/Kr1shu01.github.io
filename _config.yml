@@ -286,7 +286,7 @@ defaults:
       path: ""
       type: books
     values:
-      layout: book
+      layout: single
       author_profile: true
       share: true
 
