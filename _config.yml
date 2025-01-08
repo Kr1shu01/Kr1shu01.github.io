@@ -21,7 +21,7 @@ repository               : "academicpages/academicpages.github.io"
 #               Additional customization can be done by editing /_includes/author-profile.html
 author:
   # Biographic information
-  avatar           : "profile.png"
+  avatar           : "usagi.png"
   name             : "Kris Hu"
   pronouns         : # example: "she/her"  
   bio              : "Puisque la création crée différents degrés de force et de faiblesse sur terre, elle utilise aussi couramment une lutte brisée pour rendre les faibles tout aussi forts."
