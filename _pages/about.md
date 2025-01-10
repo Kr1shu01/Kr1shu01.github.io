@@ -35,7 +35,9 @@ The bride's delicate makeup behind the veil, with the flow of that time emerged.
 
 The groom, however, is impassive, quietly and unexpectedly raising his hands, his left hand in the shape of a gun to his temple, his right hand in the shape of a V in a gesture of victory. As far as the eye could see, there was silence, and he lifted his tilted face, revealing a smile that had been missing for a long time. A fireball appeared in the near sky, brighter than the sun, more beautiful than the moon, brighter and brighter, more and more beautiful, freezing time into eternity.
 
+***
 ---
+___
 <p align="center">**Ice Ribs.**<br>
 
 The waves came in on the wind, strong and powerful, lapping at the cliff edge. In a few years, maybe it won't be so cold, the old fisherman crossed his arms and peered out the window of his cabin. The waves of the Pacific Ocean were already becoming more frequent, but the sea level was still so high, and the Oriental Pearl Tower on the other side of the river was still sleeping under a thick layer of ice.<br>
