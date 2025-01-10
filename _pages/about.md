@@ -29,7 +29,7 @@ Unleash the imagination.
 ------
 <p align="center"><strong>Bouquet and Veil.</strong></p>
 
-The flower girl holds the bouquet above her head, her bright smile revealing the solemnity of innocence. The petals fall, throwing down a sheer nebulae, the light wind gently brushes, blossoming gorgeous fireworks. The leaping branches brought back memories of my past, about bouquets and veils.<br>
+The girl holds the bouquet above her head, her bright smile revealing the solemnity of innocence. The petals fall, throwing down a sheer nebulae, the light wind gently brushes, blossoming gorgeous fireworks. The leaping branches brought back memories of my past, about bouquets and veils.<br>
 
 The bride's delicate makeup behind the veil, with the flow of that time emerged. Smile is the dance partner of frown, fluttering in the harmony of the wind, until it touches his cool ice-like hands, not in vain these six years of waiting. The courtyard was full of high-flying people, white-haired, black-haired, and red-haired, drinking, laughing, eating, making noise, the shy little girl holding a cluster of bouquets of flowers, unable to restrain the delight bursting from the corners of her mouth, a beautiful moment. After hearing a clear chirp, the little girl shifted her gaze to the depths of the jungle, flocks of birds fluttered, colorful plumage interlaced climbing, as if a supernova erupted, but also like fireworks, the bride's eyes abruptly shook a white light, and then when she opened her eyes, she remembered that it was the reflection of glass prisms hanging on the door. The music was played, and the bride, trailing a white dress behind her, filled with joy, took six steps in the direction of the bridegroom, six steps towards the white clouds and blue sky.<br>
 
