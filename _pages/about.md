@@ -28,6 +28,7 @@ In the past I always put fantasies about the universe, I pondered that there mus
 Unleash the imagination.
 ------
 1. **Bouquet and Veil.**<br>
+
 The flower girl holds the bouquet above her head, her bright smile revealing the solemnity of innocence. The petals of the flowers fall, dropping a nebula, and the light winds blow the fireworks in splendor. The leaping branches bring back memories of bouquets and veils.<br>
 
 The bride's delicate makeup behind the veil, with the flow of that time emerged. Guan Er, a frowning dance partner, floating in the breeze, until touching his cool ice-like hands, not in vain these six years of waiting. The courtyard was full of high-flying people, white-haired, black-haired, and red-haired, drinking, laughing, eating, making noise, the shy little girl holding a cluster of bouquets of flowers, unable to restrain the delight bursting from the corners of her mouth, a beautiful moment. After hearing a clear chirp, the little girl shifted her gaze to the depths of the jungle, flocks of birds fluttered, colorful plumage interlaced climbing, as if a supernova erupted, but also like fireworks, the bride's eyes abruptly shook a white light, and then when she opened her eyes, she remembered that it was the reflection of glass prisms hanging on the door. Playing music, the bride dragged a white dress, full of joy, to the direction of the groom stepped six steps, to the white clouds and blue sky stepped six steps.<br>
@@ -35,6 +36,7 @@ The bride's delicate makeup behind the veil, with the flow of that time emerged.
 The groom, however, is impassive, quietly and unexpectedly raising his hands, his left hand in the shape of a gun to his temple, his right hand in the shape of a V in a gesture of victory. As far as the eye could see, there was silence, and he lifted his tilted face, revealing a smile that had been missing for a long time. A fireball appeared in the near sky, brighter than the sun, more beautiful than the moon, brighter and brighter, more and more beautiful, freezing time into eternity.
 
 1. **Ice Ribs.**<br>
+
 The waves came in on the wind, strong and powerful, lapping at the cliff edge. In a few years, maybe it won't be so cold, the old fisherman crossed his arms and peered out the window of his cabin. The waves of the Pacific Ocean were already becoming more frequent, but the sea level was still so high, and the Oriental Pearl Tower on the other side of the river was still sleeping under a thick layer of ice.<br>
 
 After a sip of wine, the old fisherman picks up his harpoon and pushes the door open to the cold wind, it's time to go out for food again. A little way down the hill, you see sea ice, and many longitudinal and intertwined ropes along the shore, hanging with a wide array of seafood. The old fisherman's craft feeds his family, but not his illness. The old partner also left early, has been a long time not to mention this, the son of nine to five, in fact, is in the vicinity of the newly built base as a handyman, but fortunately not idle.<br>
@@ -44,6 +46,7 @@ A stick down, the ice prongs are “click” broken, swish fall down. Day after 
 The old fisherman picked one up with his hand and headed for the woods on the mountainside, where he sat down under an old fir tree. Looking up at the pale, lifeless sun, he held the crystalline contraption in his hand in front of his eyes, and looked through it as if the sun, too, had brightened and warmed, and the world was not so cool.
 
 1. **Dream of Rain.**<br>
+
 Last night's rain may be spiritual, for it seems to have dreamed of me.<br>
 
 Rustling? Open the curtains, what upset my sorrow, so elegant, so dashing? Oh, it is you! From the clouds of the distant night sky, to the thirsty ground to go, you cut through the night curtains, persistent impact on the surface of the city, and the competition with the earth, this opened the curtain. You crash into steel sunshades, composing a piano-like tune, and then you rush headlong into puddles and puddles of mud, melting yourself into ripples of haloed impermanence. At the end of the day, you fly through the air, wander through the darkness, the leaves are your band, the flowers and plants are your dance partners, and you leap up again, bursting into unique streams, waving a great art that belongs exclusively to yourself. ......<br>
@@ -53,6 +56,7 @@ Whose sobs, shattered my dreams, and when, who's sadness did I dream? The tickin
 The world, which I had felt faint at the time, was now back to its original form.
 
 1. **Sand Lamp Thunderstorm.**<br>
+
 A plain-colored lamp post engraved with exquisite nautilus patterns stands on the vast expanse of yellow sand. Ice-crystal-like grains of fine sand, circling around the pole upward, tornado-like straight to the clouds, so the sky darkened, the crisis surfaced.
 
 Suddenly red light flashes, white light clear, the brightness of the lamp is not from human hands: red diamonds mixed flying, white sand sky shuttle, more and more quickly, no longer see the shadow. The wind roars, like madness everywhere, with the sand, overwhelming. Lights out again, can be seen more carefully in the darkness of the night a slight static electricity, conveyed between the sand particles, connected. As if the grid, but like a spider, due to the red diamonds refractive light, the ghost of the night, red electricity.
@@ -64,6 +68,7 @@ Calm down with the sand fall to the ground, the horizon jumped red light and whi
 Whose descent are you still waiting for, whose mourning are you still pursuing? Is this an eternal remembrance, or an unforgettable memory? Double shadow into the sand stars, the stars of the moon light cold and miserable, lift the eyes, when the stars have fallen into the sand dunes, when the morning light actually leapt to the east mountain? 
 
 1. **Cloak and badge.**<br>
+
 He was a handsome young policeman who had longed much for the glittering starflower on his shoulder patch.<br>
 
 She was a young and naive thief who never wanted the glamorous life of the rich.<br>
@@ -77,6 +82,7 @@ Years later, his badge glowed an eerie red on her cloak. She remembers the remna
 The cloak weeps and the badge laughs. No one knows who and where the road leads!
 
 1. **The fall is still the same fall.**<br>
+
 The wind collapses the pine needles, which fall into the saltwater marsh, and the rain seems less real. The moist air held raw power, and the rain fell into the wind like a glowing diamond in the dark night, angular and dripping into the dark lake, creating many messy and delicate ripples. The sky and the clouds mingled, unable to see each other, who was black and who was white.<br>
 
 Abruptly, a distant lightning rush down, the sky surprised a small piece of light purple, is like wisteria. White transition into purple, fading into deep black, sinking into the dark night, constituting a door of light, over there is far away. Lightning, like a white dragon, traveled through it, sending gusts of legacy to the world.<br>
@@ -90,6 +96,7 @@ Wake up in the morning, the piercing sense of light came, the sky is blue and tr
 The muddy path weeps, some giant reptile leaving a clear track. This legacy will not be filled, will not be stained, with a trace of blood. Even if civilization leaves me behind, I will no longer chase civilization, I will enjoy this legacy ......
   
 1. **Under the City of Chang'an.**<br>
+
 The coelacanth's struggle for survival began that day.<br>
 
 A pterodactyl's clearing cry seemed to signal something, and a dingo rustled through the deep brush. A coelacanth under Mirror Lake is bored and spitting out bubbles, but then, not far away, there is the sound of a giant's footsteps. Peeking out, the fish saw an extremely spectacular scene - dozens, or hundreds of exotic dragons were running towards the lake with great force. In an instant, the wind and rain changed, and the clouds and trees were mixed.<br>
@@ -101,6 +108,7 @@ Roughly 65 million years later, an upright walking mammal ruled the Earth, and t
 Coelacanths have seen a lot of people and believe that humans are qualified to exist on Earth, and they firmly believe that their existence will make the Earth more and more beautiful and better ......
 
 1. **Purple Thistle.**<br>
+
 A sky that loves a scarecrow, and a scarecrow that loves a black dodo. The black raven was a gentleman and the scarecrow thought he was the one. So the scarecrow began a long wait. The sky just watched the scarecrow silently, and he also saw the black dodo throwing “olive branches” to scarecrows all over the world. That day the Black Dodo finally came and said to the Scarecrow, “I'm afraid I can't take you on this journey, because you've become so entrenched in your destiny that you'll have to spend your life in this land. I am truly sorry.”<br>
 
 The Scarecrow looked at the black dodo flying off into the distance sobbing uncontrollably. In an instant the sky cleared and it was the sky that called the sun out. For the sky felt that there was nothing better in the world than the sun when one was at their saddest. Without waiting for the Black Dodo's next arrival, the Scarecrow died on a night of heavy rain. The scarecrow's body decays in the soil and gradually loses its shape.<br>
