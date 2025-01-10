@@ -8,9 +8,7 @@ redirect_from:
 ---
 
 Hello everyone, I am Gui Yiming from Jiangxi Province, China. I am a science fiction enthusiast and a budding writer. My greatest aspiration is for humanity's flame to endure, for our journey to transcend Earth, to venture beyond the Solar System, to escape the confines of the Milky Way, and to spread across the vast expanse of the universe.
-
-If you say you want to join the ETO, I will undoubtedly stop you without hesitation!
-To eradicate human tyranny? NONONO!
+If you say you want to join the ETO, I will undoubtedly stop you without hesitation! To eradicate human tyranny? NO NO NO!
 
 From Earth.
 ------
