@@ -27,7 +27,7 @@ In the past I always put fantasies about the universe, I pondered that there mus
 
 Unleash the imagination.
 ------
-<p align="center">**Bouquet and Veil.**</p>
+<p align="center"><strong>Bouquet and Veil.</strong></p>
 
 The flower girl holds the bouquet above her head, her bright smile revealing the solemnity of innocence. The petals of the flowers fall, dropping a nebula, and the light winds blow the fireworks in splendor. The leaping branches bring back memories of bouquets and veils.<br>
 
