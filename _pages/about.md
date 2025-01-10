@@ -34,6 +34,7 @@ The flower girl holds the bouquet above her head, her bright smile revealing the
 The bride's delicate makeup behind the veil, with the flow of that time emerged. Guan Er, a frowning dance partner, floating in the breeze, until touching his cool ice-like hands, not in vain these six years of waiting. The courtyard was full of high-flying people, white-haired, black-haired, and red-haired, drinking, laughing, eating, making noise, the shy little girl holding a cluster of bouquets of flowers, unable to restrain the delight bursting from the corners of her mouth, a beautiful moment. After hearing a clear chirp, the little girl shifted her gaze to the depths of the jungle, flocks of birds fluttered, colorful plumage interlaced climbing, as if a supernova erupted, but also like fireworks, the bride's eyes abruptly shook a white light, and then when she opened her eyes, she remembered that it was the reflection of glass prisms hanging on the door. Playing music, the bride dragged a white dress, full of joy, to the direction of the groom stepped six steps, to the white clouds and blue sky stepped six steps.<br>
 
 The groom, however, is impassive, quietly and unexpectedly raising his hands, his left hand in the shape of a gun to his temple, his right hand in the shape of a V in a gesture of victory. As far as the eye could see, there was silence, and he lifted his tilted face, revealing a smile that had been missing for a long time. A fireball appeared in the near sky, brighter than the sun, more beautiful than the moon, brighter and brighter, more and more beautiful, freezing time into eternity.
+------
 
 <p align="center">**Ice Ribs.**<br>
 
@@ -44,6 +45,7 @@ After a sip of wine, the old fisherman picks up his harpoon and pushes the door 
 A stick down, the ice prongs are “click” broken, swish fall down. Day after day, the old fisherman also took this as a pleasure, because this kind of crisp sound, just like his old heart, are lamenting this cold and harsh world. Every night the waves, wrapped in the sea breeze, skimmed over these ropes and swirled and froze, one drop blending into another, and another, and a starry night slipped by in this endless stream. Early in the morning, a single rope was lined with ice prongs, each one stretched out at a different angle, and the cold wind whizzed through them, lifting flakes of snow from the ground. By midday, the heat of the sun was not even enough to melt them completely, and if these ice prongs were not cleared every day, they would grow wildly like weeds in the wilderness, growing longer and heavier until they crushed the ropes that held the seafood.<br>
 
 The old fisherman picked one up with his hand and headed for the woods on the mountainside, where he sat down under an old fir tree. Looking up at the pale, lifeless sun, he held the crystalline contraption in his hand in front of his eyes, and looked through it as if the sun, too, had brightened and warmed, and the world was not so cool.
+------
 
 <p align="center">**Dream of Rain.**<br>
 
@@ -54,6 +56,7 @@ Rustling? Open the curtains, what upset my sorrow, so elegant, so dashing? Oh, i
 Whose sobs, shattered my dreams, and when, who's sadness did I dream? The ticking rain won't say she's sad, the clattering rain won't say she's confused, and hearing my sobs, the rain drifted through the barred windows and into my room, splashing my cheeks and eyes with a misty, steaming coolness - I could truly feel it with my mind, for the rain had passed through the skin of my face, and with the blood, flowed I could really feel it with my heart, because the rain had flowed through the skin of my face, along with the blood, and entered my heart; I could clearly imagine it with my mind, because the rain had seeped along my pale skull, into my brain, and seeped into my dreams.<br>
 
 The world, which I had felt faint at the time, was now back to its original form.
+------
 
 <p align="center">**Sand Lamp Thunderstorm.**<br>
 
@@ -66,6 +69,7 @@ The more frequent the brightening and extinction, the more crisp the sound of el
 Calm down with the sand fall to the ground, the horizon jumped red light and white fog, seemingly unwilling to wither the flowers. Splendid flowers fill the golden desert wilderness; the silent night sky, stirring the distant silver waves.
 
 Whose descent are you still waiting for, whose mourning are you still pursuing? Is this an eternal remembrance, or an unforgettable memory? Double shadow into the sand stars, the stars of the moon light cold and miserable, lift the eyes, when the stars have fallen into the sand dunes, when the morning light actually leapt to the east mountain? 
+------
 
 <p align="center">**Cloak and badge.**<br>
 
@@ -80,6 +84,7 @@ The countryside, the blue sky, the smoke from the valley stacks. A midday full o
 Years later, his badge glowed an eerie red on her cloak. She remembers the remnants of the good old days, and he looks forward to the glory of the unknown and eternal.<br>
 
 The cloak weeps and the badge laughs. No one knows who and where the road leads!
+------
 
 <p align="center">**The fall is still the same fall.**<br>
 
@@ -94,7 +99,8 @@ The wind is still fresh and quiet, the rain is still pouring, and it is still th
 Wake up in the morning, the piercing sense of light came, the sky is blue and transparent, there is not a trace of clouds in the sky, like a piece of flawless cloth. The reeds around the piece, the culvert is still silently flowing, two water ripples meandering, breaking the silence of this ultra-void.<br>
 
 The muddy path weeps, some giant reptile leaving a clear track. This legacy will not be filled, will not be stained, with a trace of blood. Even if civilization leaves me behind, I will no longer chase civilization, I will enjoy this legacy ......
-  
+------
+
 <p align="center">**Under the City of Chang'an.**<br>
 
 The coelacanth's struggle for survival began that day.<br>
@@ -106,6 +112,7 @@ Mirror Lake is the center of the Gondwana Basin and the lowest point of the area
 Roughly 65 million years later, an upright walking mammal ruled the Earth, and the coelacanth underwent the same qualitative change. After all that time in the interior of the planet, it would seem logical that they would have been strong enough to return to the surface, so why did the coelacanths remain silent underground for so long? The reason is simple, because they don't need oxygen anymore, and of course sunlight isn't a necessity. Their source of energy is rock, they have four small hands and two legs, and they did return to the surface, but only in the last few thousand years, when they suddenly detected a great crisis lurking on the surface, just as their ancestors remembered in the distant past.<br>
 
 Coelacanths have seen a lot of people and believe that humans are qualified to exist on Earth, and they firmly believe that their existence will make the Earth more and more beautiful and better ......
+------
 
 <p align="center">**Purple Thistle.**<br>
 
