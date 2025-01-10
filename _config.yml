@@ -8,7 +8,7 @@
 
 # Basic Site Settings
 locale                   : "en-US"
-title                    : "Kris Hu's Personal Homepage"
+title                    : "Gui Yiming's Personal Homepage"
 title_separator          : "-"
 name                     : &name "Your Name"
 description              : &description "personal description"
@@ -22,7 +22,7 @@ repository               : "Kr1shu01/Kr1shu01.github.io"
 author:
   # Biographic information
   avatar           : "usagi.png"
-  name             : "Kris Hu"
+  name             : "Gui Yiming"
   pronouns         : #"she"
   bio              : "Puisque la création crée différents degrés de force et de faiblesse sur terre, elle utilise aussi couramment une lutte brisée pour rendre les faibles tout aussi forts."
   location         : "Shanghai"
