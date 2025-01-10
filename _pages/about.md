@@ -62,33 +62,33 @@ ___
 
 At the end of the snowy field were the dark shadows of the procession travelling further and further away, the lights dappled and thrown over the sound of distant footsteps. The exit of the forest, barren and silent, her beautiful face in the moonlight, hung a trace of unintentional sadness, the red dress in the silver-white world is particularly conspicuous. She still wondered why no one assisted her, all so silently swept past her, as if she did not exist at all. A beast of some sort, orb-like swished into her dress, tickling her and giving birth to a laugh.
 
-Ten minutes ago I'd been playing with Sledgehammer by the campfire, and then Father had said it was not a good place to stay, and had led the townspeople out into the woods. At that time, I thought, this forest is not quite good, there is wood to renew the fire, but also can withstand the cold wind, and the moon is a good poetic. What's wrong with Dad? When I asked him, he wouldn't tell me. Now, Dad suddenly and the village chief two people walking back, I am even more curious, stalking on the two of them, do not care what. I kicked the snow along the path, Dad holding a burning torch, the village chief carrying a black cloth bag, bulging. Dad did not allow me to ask the village head what is in the bag, I guess it is certainly not a human head, nor the head of other animals, after all, the village head is also a handful of years old.
+Ten minutes ago I'd been playing with DaChui by the campfire, and then Dad had said it was not a good place to stay, and had led the townspeople out into the woods. At that time, I thought, isn't this forest nice? There's wood to renew the fire, and it's also good protection from the cold wind, and the bright moon is so poetic. What's wrong with Dad? When I asked him, he wouldn't tell me. Now, Dad suddenly and the village chief two people walking back, I am even more curious, stalking on the two of them, do not care what. I kicked the snow along the path, Dad holding a burning torch, the village chief carrying a black cloth bag, bulging. Dad did not allow me to ask the village head what is in the bag, I guess it is certainly not a human head, nor the head of other animals, after all, the village head is also a handful of years old.
 
-The moon was shining brightly, and in a moment we were swaying to the forest. From a distance, the forest is black, approaching is different, the branches of the dead trees are intertwined, the moonlight is cut into a piece of a piece, but also dripping red drops of blood. I don't remember much of what happened at that time, but occasionally the words ‘misunderstanding’, ‘rescue’, ‘what is it’ came into my ears, and I woke up to see a woman I'd never seen before sitting next to me. I woke up to a woman I'd never seen before sitting next to me combing my hair.
+The moon was shining brightly, and in a moment we were swaying to the forest. From a distance, the forest is black, approaching is different, the branches of the dead trees are intertwined, the moonlight is cut into a piece of a piece, but also dripping red drops of blood. I don't remember much of what happened at that time, but occasionally the words ‘misunderstanding’, ‘rescue’, ‘what is it’ came into my ears, and I woke up to see a woman I'd never seen before sitting next to me brushing her hair.
 
 ___
 <p align="center"><strong>Sand Lamp Thunderstorm.</strong></p>
 
 A plain-colored lamp post engraved with exquisite nautilus patterns stands on the vast expanse of yellow sand. Ice-crystal-like grains of fine sand, circling around the pole upward, tornado-like straight to the clouds, so the sky darkened, the crisis surfaced.
 
-Suddenly red light flashes, white light clear, the brightness of the lamp is not from human hands: red diamonds mixed flying, white sand sky shuttle, more and more quickly, no longer see the shadow. The wind roars, like madness everywhere, with the sand, overwhelming. Lights out again, can be seen more carefully in the darkness of the night a slight static electricity, conveyed between the sand particles, connected. As if the grid, but like a spider, due to the red diamonds refractive light, the ghost of the night, red electricity.
+Suddenly red light flashes, white light clear, the brightness of the lamp is not from human hands: red diamonds mixed flying, white sand sky shuttle, more and more quickly, no longer see the shadow. The wind roars, like madness everywhere, with the sand, overwhelming. Lights out again, can be seen more carefully in the darkness of the night a slight static electricity, conveyed between the sand particles, connected. As if the grid, but like the spider silk, due to the red diamonds refractive light, the ghost of the night, red electricity.
 
 The more frequent the brightening and extinction, the more crisp the sound of electricity sizzles, as if in the distant void of space, will also be surprised by this thunderstorm. Yellow sand dense and sparse, sparse and dense, light and shadow interlacing, the final gathering, annihilation. The red diamonds are connected into a line, the white sand is spread into a surface, a loud sound that runs through half of the desert, a strong light that illuminates half of the night sky, and a sand pit with a circumference of 5,000 meters, they came with such fanfare, and they came......silently.
 
-Calm down with the sand fall to the ground, the horizon jumped red light and white fog, seemingly unwilling to wither the flowers. Splendid flowers fill the golden desert wilderness; the silent night sky, stirring the distant silver waves.
+Calm down with the sand fall to the ground, the horizon jumped red light and white fog, seemingly unwilling to wither the flowers. Splendid flowers fill the golden desert wilderness; the silent night sky stirs with distant silver waves.
 
-Whose descent are you still waiting for, whose mourning are you still pursuing? Is this an eternal remembrance, or an unforgettable memory? Double shadow into the sand stars, the stars of the moon light cold and miserable, lift the eyes, when the stars have fallen into the sand dunes, when the morning light actually leapt to the east mountain? 
+Whose descent are you still waiting for, whose mourning are you still pursuing? Is this an eternal remembrance, or an unforgettable memory? Double shadows into the sand, the stars are dotted; the stars cup the moon, the light is cold and bleak. Lift up your eyes. When did the stars fall into the sand dunes, and when did the morning light leap over the eastern hills?
 
 ___
 <p align="center"><strong>Cloak and badge.</strong></p>
 
-He was a handsome young policeman who had longed much for the glittering starflower on his shoulder patch.<br>
+He was a handsome and young policeman who had longed much for the glittering starflower on his shoulder patch.<br>
 
-She was a young and naive thief who never wanted the glamorous life of the rich.<br>
+She was a youthful and naive thief who never wanted the glamorous life of the rich.<br>
 
 In the city, the night starts, the light is dense, pedestrians move. A normal night, he had just been laid off, thinking that instead of going back to the dim corners of his own rented house, it would be better to go to the neighborhood which tavern to soothe the tired body and mind. At a speakeasy near the center of town by an overpass, he didn't want anyone to think he'd secretly ordered that Bloody Mary and sat down in the middle of the hall. The table, full of his proud and humble dignity, along with the reality of not having gotten a promotion in years, irrigated his stomach with sadness.<br>
 
-The countryside, the blue sky, the smoke from the valley stacks. A midday full of unknowns, she picked up a little money from the city, on the way back to buy a bottle of watermelon flavored soda as a treat for themselves, thinking that her mother should be harvested today must also be quite fruitful, I do not know if they will remember to buy their favorite peach cobbler. The sunlight reflected on her cheeks, warm as it was, and the shade of the trees didn't sound the dance of summer. From the half-height of the roof, she cooed her knowledge of the world's beauties into her white-toothed lips, along with the chirping of insects and birds in the countryside.<br>
+The countryside, the blue sky, the smoke from the valley stacks. A midday full of unknowns, she got a little money from the city and bought a bottle of watermelon-flavoured soft drink as a treat for herself on the way back, thinking that her mother must have had a good harvest today as well, and wondering if she would remember to buy her favourite peach cobbler. The sunlight reflected on her cheeks, warm as it was, and the shade of the trees didn't sound the dance of summer. From the half-height of the roof, she cooed her knowledge of the world's beauties into her white-toothed lips, along with the chirping of insects and birds in the countryside.<br>
 
 Years later, his badge glowed an eerie red on her cloak. She remembers the remnants of the good old days, and he looks forward to the glory of the unknown and eternal.<br>
 
@@ -97,17 +97,17 @@ The cloak weeps and the badge laughs. No one knows who and where the road leads!
 ___
 <p align="center"><strong>The fall is still the same fall.</strong></p>
 
-The wind collapses the pine needles, which fall into the saltwater marsh, and the rain seems less real. The moist air held raw power, and the rain fell into the wind like a glowing diamond in the dark night, angular and dripping into the dark lake, creating many messy and delicate ripples. The sky and the clouds mingled, unable to see each other, who was black and who was white.<br>
+The wind collapses the pine needles, which fall into the saltwater marsh, and the rain seems less real. The moist air held raw power, and the rain fell into the wind like a glowing diamond in the dark night, dripping into the wind as if it were angular, and dripped into the dark water of the lake in many stray and delicate ripples. The sky and the clouds mingled, unable to see each other, who was black and who was white.<br>
 
-Abruptly, a distant lightning rush down, the sky surprised a small piece of light purple, is like wisteria. White transition into purple, fading into deep black, sinking into the dark night, constituting a door of light, over there is far away. Lightning, like a white dragon, traveled through it, sending gusts of legacy to the world.<br>
+Abruptly, a distant lightning rush down, the sky surprised a small piece of light purple, is like wisteria. White transition into purple, fading into deep black, sinking into the dark night, constituting a door of light, over there is far away. Lightning, like a white loong, traveled through it, sending gusts of fall to the world.<br>
 
-The abandoned red-walled and black-tiled house, huddled in the storm, suffers from the whiplash. The room is overgrown with thistle, flowers and insects are dormant, decaying in the fragrant soil, among the pebbles. The roar stops, the rain gets heavier, and the only thing you can hear is the leaves hitting the forest.<br>
+The abandoned red-walled and black-tiled house, huddled in the storm, suffers from the whiplash. The room is overgrown with thistle, flowers and insects are dormant, decaying in the fragrant soil, among the pebbles. The roar stops, the rain gets heavier, with only the sound of it piercing through the forest and striking the leaves.<br>
 
-The wind is still fresh and quiet, the rain is still pouring, and it is still the same legacy.<br>
+The wind is still serene, the rain is still pouring, and it is still the same fall.<br>
 
 Wake up in the morning, the piercing sense of light came, the sky is blue and transparent, there is not a trace of clouds in the sky, like a piece of flawless cloth. The reeds around the piece, the culvert is still silently flowing, two water ripples meandering, breaking the silence of this ultra-void.<br>
 
-The muddy path weeps, some giant reptile leaving a clear track. This legacy will not be filled, will not be stained, with a trace of blood. Even if civilization leaves me behind, I will no longer chase civilization, I will enjoy this legacy ......
+The muddy path weeps, some giant reptile leaving a clear track. This fall will neither be filled nor stained with a trace of blood. Even if civilization leaves me behind, I will no longer chase civilization, I will enjoy this fall ......
 
 ___
 <p align="center"><strong>Under the City of Chang'an.</strong></p>
