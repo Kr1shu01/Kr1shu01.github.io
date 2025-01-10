@@ -58,6 +58,15 @@ Whose sobs, shattered my dreams, and when, who's sadness did I dream? The tickin
 The world, which I had felt faint at the time, was now back to its original form.
 
 ___
+<p align="center"><strong>Treacherous.</strong></p>
+
+At the end of the snowy field were the dark shadows of the procession travelling further and further away, the lights dappled and thrown over the sound of distant footsteps. The exit of the forest, barren and silent, her beautiful face in the moonlight, hung a trace of unintentional sadness, the red dress in the silver-white world is particularly conspicuous. She still wondered why no one assisted her, all so silently swept past her, as if she did not exist at all. A beast of some sort, orb-like swished into her dress, tickling her and giving birth to a laugh.
+
+Ten minutes ago I'd been playing with Sledgehammer by the campfire, and then Father had said it was not a good place to stay, and had led the townspeople out into the woods. At that time, I thought, this forest is not quite good, there is wood to renew the fire, but also can withstand the cold wind, and the moon is a good poetic. What's wrong with Dad? When I asked him, he wouldn't tell me. Now, Dad suddenly and the village chief two people walking back, I am even more curious, stalking on the two of them, do not care what. I kicked the snow along the path, Dad holding a burning torch, the village chief carrying a black cloth bag, bulging. Dad did not allow me to ask the village head what is in the bag, I guess it is certainly not a human head, nor the head of other animals, after all, the village head is also a handful of years old.
+
+The moon was shining brightly, and in a moment we were swaying to the forest. From a distance, the forest is black, approaching is different, the branches of the dead trees are intertwined, the moonlight is cut into a piece of a piece, but also dripping red drops of blood. I don't remember much of what happened at that time, but occasionally the words ‘misunderstanding’, ‘rescue’, ‘what is it’ came into my ears, and I woke up to see a woman I'd never seen before sitting next to me. I woke up to a woman I'd never seen before sitting next to me combing my hair.
+
+___
 <p align="center"><strong>Sand Lamp Thunderstorm.</strong></p>
 
 A plain-colored lamp post engraved with exquisite nautilus patterns stands on the vast expanse of yellow sand. Ice-crystal-like grains of fine sand, circling around the pole upward, tornado-like straight to the clouds, so the sky darkened, the crisis surfaced.
