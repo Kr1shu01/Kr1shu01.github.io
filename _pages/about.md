@@ -36,7 +36,7 @@ The bride's delicate makeup behind the veil, with the flow of that time emerged.
 The groom, however, is impassive, quietly and unexpectedly raising his hands, his left hand in the shape of a gun to his temple, his right hand in the shape of a V in a gesture of victory. As far as the eye could see, there was silence, and he lifted his tilted face, revealing a smile that had been missing for a long time. A fireball appeared in the near sky, brighter than the sun, more beautiful than the moon, brighter and brighter, more and more beautiful, freezing time into eternity.
 
 ___
-<p align="center">Ice Ribs.</strong></p>
+<p align="center"><strong>Ice Ribs.</strong></p>
 
 The waves came in on the wind, strong and powerful, lapping at the cliff edge. In a few years, maybe it won't be so cold, the old fisherman crossed his arms and peered out the window of his cabin. The waves of the Pacific Ocean were already becoming more frequent, but the sea level was still so high, and the Oriental Pearl Tower on the other side of the river was still sleeping under a thick layer of ice.<br>
 
@@ -47,7 +47,7 @@ A stick down, the ice prongs are “click” broken, swish fall down. Day after 
 The old fisherman picked one up with his hand and headed for the woods on the mountainside, where he sat down under an old fir tree. Looking up at the pale, lifeless sun, he held the crystalline contraption in his hand in front of his eyes, and looked through it as if the sun, too, had brightened and warmed, and the world was not so cool.
 
 ___
-<p align="center">Dream of Rain.</strong></p>
+<p align="center"><strong>Dream of Rain.</strong></p>
 
 Last night's rain may be spiritual, for it seems to have dreamed of me.<br>
 
@@ -58,7 +58,7 @@ Whose sobs, shattered my dreams, and when, who's sadness did I dream? The tickin
 The world, which I had felt faint at the time, was now back to its original form.
 
 ___
-<p align="center">Sand Lamp Thunderstorm.</strong></p>
+<p align="center"><strong>Sand Lamp Thunderstorm.</strong></p>
 
 A plain-colored lamp post engraved with exquisite nautilus patterns stands on the vast expanse of yellow sand. Ice-crystal-like grains of fine sand, circling around the pole upward, tornado-like straight to the clouds, so the sky darkened, the crisis surfaced.
 
@@ -71,7 +71,7 @@ Calm down with the sand fall to the ground, the horizon jumped red light and whi
 Whose descent are you still waiting for, whose mourning are you still pursuing? Is this an eternal remembrance, or an unforgettable memory? Double shadow into the sand stars, the stars of the moon light cold and miserable, lift the eyes, when the stars have fallen into the sand dunes, when the morning light actually leapt to the east mountain? 
 
 ___
-<p align="center">Cloak and badge.</strong></p>
+<p align="center"><strong>Cloak and badge.</strong></p>
 
 He was a handsome young policeman who had longed much for the glittering starflower on his shoulder patch.<br>
 
@@ -86,7 +86,7 @@ Years later, his badge glowed an eerie red on her cloak. She remembers the remna
 The cloak weeps and the badge laughs. No one knows who and where the road leads!
 
 ___
-<p align="center">The fall is still the same fall.</strong></p>
+<p align="center"><strong>The fall is still the same fall.</strong></p>
 
 The wind collapses the pine needles, which fall into the saltwater marsh, and the rain seems less real. The moist air held raw power, and the rain fell into the wind like a glowing diamond in the dark night, angular and dripping into the dark lake, creating many messy and delicate ripples. The sky and the clouds mingled, unable to see each other, who was black and who was white.<br>
 
@@ -101,7 +101,7 @@ Wake up in the morning, the piercing sense of light came, the sky is blue and tr
 The muddy path weeps, some giant reptile leaving a clear track. This legacy will not be filled, will not be stained, with a trace of blood. Even if civilization leaves me behind, I will no longer chase civilization, I will enjoy this legacy ......
 
 ___
-<p align="center">Under the City of Chang'an.</strong></p>
+<p align="center"><strong>Under the City of Chang'an.</strong></p>
 
 The coelacanth's struggle for survival began that day.<br>
 
@@ -114,7 +114,7 @@ Roughly 65 million years later, an upright walking mammal ruled the Earth, and t
 Coelacanths have seen a lot of people and believe that humans are qualified to exist on Earth, and they firmly believe that their existence will make the Earth more and more beautiful and better ......
 
 ___
-<p align="center">Purple Thistle.</strong></p>
+<p align="center"><strong>Purple Thistle.</strong></p>
 
 A sky that loves a scarecrow, and a scarecrow that loves a black dodo. The black raven was a gentleman and the scarecrow thought he was the one. So the scarecrow began a long wait. The sky just watched the scarecrow silently, and he also saw the black dodo throwing “olive branches” to scarecrows all over the world. That day the Black Dodo finally came and said to the Scarecrow, “I'm afraid I can't take you on this journey, because you've become so entrenched in your destiny that you'll have to spend your life in this land. I am truly sorry.”<br>
 
