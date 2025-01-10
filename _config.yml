@@ -25,8 +25,8 @@ author:
   name             : "Kris Hu"
   pronouns         : # example: "she/her"  
   bio              : "Puisque la création crée différents degrés de force et de faiblesse sur terre, elle utilise aussi couramment une lutte brisée pour rendre les faibles tout aussi forts."
-  location         : #"Shanghai"
-  employer         : #"Shanghai University"
+  location         : "Shanghai"
+  employer         : "Shanghai University"
   uri              : # URL
   email            : #"kr1shu0714@gmail.com" 
 
@@ -44,7 +44,7 @@ author:
   bitbucket        : # Username - Update with your username on the site
   codepen          : # Username
   dribbble         : # Username
-  github           : #"academicpages"
+  github           : https://github.com/Kr1shu01
   kaggle           : # Username  
   stackoverflow    : # User number or user number and name (i.e., use "1" or "1/jeff-atwood")    
 
@@ -73,6 +73,7 @@ author:
   xing             : # Username
   youtube          : # Username
   zhihu            : # Username
+  wechat           : moon_catalpa
 
 # Publication Category - The following the list of publication categories and their headings
 publication_category:
@@ -279,14 +280,6 @@ defaults:
       type: talks
     values:
       layout: talk
-      author_profile: true
-      share: true
-  # _books
-  - scope:
-      path: ""
-      type: books
-    values:
-      layout: single
       author_profile: true
       share: true
 
